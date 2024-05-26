@@ -2,7 +2,7 @@
 - 👀 I am open for Entry Level Data Analyst Role as I am currently in search of a Data Analyst role
 - 🌱 Ask me about anything on Data and I will respond immediately 
 - 💞️ I am looking to collaborate with companies, organisations or even i dividuals to solve their business problesms by leveraging on Data
-- 📫 How to reach me: olaitan.oluwaseyi55@gmail.com
+- 📫 How to reach me:Email: olaitan.oluwaseyi55@gmail.com [linkedin](www.linkedin.com/in/olaitan-oluwaseyi-b4460a28a)
 - 😄 Pronouns: He
 - ⚡ Fun fact: I love to speak publicly and guide youths into pursuing a career in tech.
 
